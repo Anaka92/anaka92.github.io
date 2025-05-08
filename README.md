@@ -1,1 +1,1 @@
-# anaka92.github.io/CV
+# anaka92.github.io
